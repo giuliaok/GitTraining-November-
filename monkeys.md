@@ -11,11 +11,12 @@ You can find this monkey in the british library as well.
 
 The golden snub nose-monkey is found in groups ranging in size from 5-10 individuals to 600 individuals. 
 
-
 They can live in mountains up to 4.000meters. Pretty sick.  
+The golden snub monkey is a very friendly monkey.  
 
 I dont like monkeys.
- 
 
 
+Ape
 
+Apes (Hominoidea) are a branch of Old World tailless simians native to Africa and Southeast Asia. 
