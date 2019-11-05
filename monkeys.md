@@ -11,8 +11,10 @@ You can find this monkey in the british library as well.
 
 The golden snub nose-monkey is found in groups ranging in size from 5-10 individuals to 600 individuals. 
 
+The golden snub monkey is a very friendly monkey.  
+
 I dont like monkeys.
- 
+
 
 Ape
 
