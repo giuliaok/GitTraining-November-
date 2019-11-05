@@ -17,3 +17,5 @@ I dont like monkeys.
 Ape
 
 Apes (Hominoidea) are a branch of Old World tailless simians native to Africa and Southeast Asia. 
+
+There are two types of ape: lesser apes and greater apes
