@@ -21,3 +21,8 @@ Ape
 Apes (Hominoidea) are a branch of Old World tailless simians native to Africa and Southeast Asia. 
 
 The Ape is not as friendly as the golden snub monkey. 
+
+There are two types of ape: lesser apes and greater apes
+
+I don't like apes.
+
