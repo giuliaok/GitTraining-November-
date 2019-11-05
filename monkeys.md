@@ -19,3 +19,5 @@ I dont like monkeys.
 Ape
 
 Apes (Hominoidea) are a branch of Old World tailless simians native to Africa and Southeast Asia. 
+
+The Ape is not as friendly as the golden snub monkey. 
