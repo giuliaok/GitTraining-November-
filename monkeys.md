@@ -10,6 +10,6 @@ You can find this monkey in the british library as well.
 
 The golden snub nose-monkey is found in groups ranging in size from 5-10 individuals to 600 individuals. 
 
- 
+They can live in mountains up to 4.000meters. Pretty sick.  
 
 
