@@ -11,11 +11,15 @@ You can find this monkey in the british library as well.
 
 The golden snub nose-monkey is found in groups ranging in size from 5-10 individuals to 600 individuals. 
 
+The golden snub monkey is a very friendly monkey.  
+
 I dont like monkeys.
- 
+
 
 Ape
 
 Apes (Hominoidea) are a branch of Old World tailless simians native to Africa and Southeast Asia. 
 
 There are two types of ape: lesser apes and greater apes
+
+I don't like apes.
