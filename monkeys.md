@@ -7,7 +7,8 @@ This monkey is very nice, check it online
 
 In terms of conservation status, this particular type of monkey is Endangered. 
 
-You can find this monkey in the british library as well. 
+You can find this monkey in the british library as well. Usually they like quite and antisocial environments,
+like the fourth floor
 
 The golden snub nose-monkey is found in groups ranging in size from 5-10 individuals to 600 individuals. 
 
